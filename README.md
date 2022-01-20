@@ -1,2 +1,2 @@
-# SayedMdMominulIslam.github.io
+# Muhammad Minhaj
 Welcome to my Website
